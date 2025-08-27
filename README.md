@@ -9,39 +9,46 @@ This graphic design portfolio showcases a curated collection of work that reflec
 ![Screenshot_27-8-2025_184733_www pinterest com](https://github.com/user-attachments/assets/731feb2e-0e19-46be-a99d-911cdda597bb)
 
 This flyer _EMPHASIS_ to  people that there is a restaurant/food service nearby, and that they also make delicious foods.
-The _HIERARCHY_  is also just right.
+It's _Hierarchy_ Headline "DELICIOUS FOOD SERVICE" is well placed.
 The _COLOR_ is just right for me,i mean am already feeling quit hungry now. _hint_ the red color if not at least tries to make people hungry.
 Lastly everything on this flyer is just _complementary_ to each other.
+Its well  _Balance_ and the layout adds dynamic energy.
 
 # Religious Event.
 ![Screenshot_27-8-2025_184618_www pinterest com](https://github.com/user-attachments/assets/6c3fe41d-a8c0-48b2-b29c-c85ca4aa6abb)
 
+tTexture & Depth Dusty ground and lighting add realism.
+From just looking at this poster, we immediately know what it is all bout, without even reading it yet.
+Also from _Texture & Depth_ of the background seems to be in a dry desert, I think it goes to show us what to expect.
+But the color sharp sha.
+Speaker and text are strategically aligned to guide the eye. Good Alignment.
 
-From just looking at this poster, we immediately know what it it without even reading it yet.
-Also from just looking on how the background seems to be in a dry desert, I think it goes to show us what to expect.
-But i color no really sharp sha.
 
 # Informational
 ![Screenshot_27-8-2025_184521_www pinterest com](https://github.com/user-attachments/assets/a15f02a4-479e-4077-a7a1-b8d055e1a026)
 
 
 This flyer trys to hint to us, On what it takes to create a flyer that's exceptional by following the same example in which its trying to teach. 
-Also the _HIERARCHY_ arrange the steps to creating a Flyer That Stands Out from the most important down to the lest important.
+Also the _HIERARCHY_ just arranged the steps to creating a Flyer That Stands Out from the most important down to the lest important
+The Typography is Clean,  its font enhances readability.
 
 # Interior Design Poster
 ![Screenshot_27-8-2025_184347_www pinterest com](https://github.com/user-attachments/assets/252f3e0b-c734-4f56-8cfd-cb910930da95)
 
-I no don't have words to waste here, I mean can't you simply see that it is desige just like an Interior. I mean the poster is an interior design in and out of its self.
+ its Imagery is just like a Realistic interior photos to  help customers imagine results.(just imagine)
+ Bold title, subheading, then service list. overall the _Hierarchy_ is good.
 
 # Skincare Ad Poster
 ![Screenshot_27-8-2025_18425_www pinterest com](https://github.com/user-attachments/assets/56019acf-adec-425e-942f-93bd44ad73a1)
 
+Clean layout draws attention to product.
 The _Color_ in this Ad poster is subtly, Gives the sense of coolness, nature, and hydration.
 Its also shows what to expect. (NOT THAT WHAT YOU EXPECT THE PRODUCT TO BE ABLE TO WILL BE ALL TRUE BUH IT STILL COUNTS I GUESS)
 
 # Sports flyer
 ![Screenshot_27-8-2025_183959_www pinterest com](https://github.com/user-attachments/assets/93c100e8-7151-4a1c-b064-323f4826da4d)
 
+its Balance Centered composition makes the image feel grounded despite the dynamic action. Lets start playing basketball 🏀.
 In high sense this flyer shows that it's cool to play basketball 🏀 while wearing _Nike shoes_. i need one or two sha😂.
 Strong contrast between black-and-white photo and bold white text.
 
