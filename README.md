@@ -1,6 +1,6 @@
 # My first-graphic-design-portfolio.
 
-# This for practical from mr Dave.
+# This is for practical from Mr Dave.
 
 
 This graphic design portfolio showcases a curated collection of work that reflect ability designers to craft compelling visual stories that help businesses solve some problem in one way or another. From branding and editorial layouts to digital illustrations and UI/UX design.
